@@ -1,1 +1,0 @@
-this is a collaborative tak by Nashon AND kioko SAmuel[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[D[T[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[C[Con[C[C[Csk by Nashon and Kioko Samuel
